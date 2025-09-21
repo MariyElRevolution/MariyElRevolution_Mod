@@ -6,7 +6,7 @@
 Данный мод ОФФИЦИАЛЬН опубликован только на данных площадках:
 
 1. На ГитХабе (Тоесть тут)
-2. PlayGround (https://www.playground.ru/post/1187134)
+2. PlayGround (https://www.playground.ru/hearts_of_iron_4/file/mod_dlya_hearts_of_iron_4_marij_el_revolyushen-1793455)
 3.
 4.
 5.
